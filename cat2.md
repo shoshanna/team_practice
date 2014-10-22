@@ -1,4 +1,4 @@
-MORE CATS
+MORE CAT
  /\_/\
 ( o.o )
  > ^ <
